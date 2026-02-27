@@ -9,6 +9,8 @@ VDS Windows и Linux: аренда виртуального VPS сервера
 
 # Возможности нашего сервиса:
 - Доступный срок аренды начинается от 7 дней.
+[![TG](https://github.com/nop-74/VDS_Windows-_Linux/blob/main/10.png)](https://rdp-onedash.ru/r/8746989)
+
 ![Alt text](https://github.com/nop-74/VDS_Windows-_Linux/blob/main/1.png?raw=true)
 
 ![Alt text](https://github.com/nop-74/VDS_Windows-_Linux/blob/main/2.png?raw=true)
