@@ -1,6 +1,7 @@
 # VDS_Windows-_Linux
 ![Alt text](https://github.com/nop-74/VDS_Windows-_Linux/blob/main/win.png)
-VDS Windows и Linux: аренда виртуального VPS сервера
+
+- VDS Windows и Linux: аренда виртуального VPS сервера
 - Самые удобные RDP сервера - для продуктивной работы.
 - На нашем сайте вы можете купить дешево VPS\VDS серверы на базе Windows или Linux, размещенные в России и Нидерландах.
 - Аренда виртуальных и выделенных серверов для эффективной работы.
