@@ -17,7 +17,7 @@ VDS Windows и Linux: аренда виртуального VPS сервера
 
 ![Alt text](https://github.com/nop-74/VDS_Windows-_Linux/blob/main/t1.png)
 
-[![sale](https://github.com/nop-74/VDS_Windows-_Linux/blob/main/sale.png](https://rdp-onedash.ru/r/8746989)
+[![TG](https://i.postimg.cc/qBmSHVQj/TGFR-3.png)](https://t.me/fradyrad)
 
 
 ![Alt text](https://github.com/nop-74/VDS_Windows-_Linux/blob/main/t2.png)
