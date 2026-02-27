@@ -12,3 +12,28 @@ VDS Windows и Linux: аренда виртуального VPS сервера
 ![Alt text](https://github.com/nop-74/VDS_Windows-_Linux/blob/main/1.png?raw=true)
 
 ![Alt text](https://github.com/nop-74/VDS_Windows-_Linux/blob/main/2.png?raw=true)
+
+# Тарифы
+
+![Alt text](https://github.com/nop-74/VDS_Windows-_Linux/blob/main/t1.png)
+
+# [ЗАКАЗАТЬ](https://rdp-onedash.ru/r/8746989)
+
+
+![Alt text](https://github.com/nop-74/VDS_Windows-_Linux/blob/main/t2.png)
+
+# [ЗАКАЗАТЬ](https://rdp-onedash.ru/r/8746989)
+
+
+![Alt text](https://github.com/nop-74/VDS_Windows-_Linux/blob/main/t3.png)
+
+# [ЗАКАЗАТЬ](https://rdp-onedash.ru/r/8746989)
+
+
+![Alt text](https://github.com/nop-74/VDS_Windows-_Linux/blob/main/t4.png)
+# [ЗАКАЗАТЬ](https://rdp-onedash.ru/r/8746989)
+
+![Alt text](https://github.com/nop-74/VDS_Windows-_Linux/blob/main/t5.png)
+
+
+# [ЗАКАЗАТЬ](https://rdp-onedash.ru/r/8746989)
