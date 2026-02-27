@@ -17,23 +17,24 @@ VDS Windows и Linux: аренда виртуального VPS сервера
 
 ![Alt text](https://github.com/nop-74/VDS_Windows-_Linux/blob/main/t1.png)
 
-[![TG](https://i.postimg.cc/qBmSHVQj/TGFR-3.png)](https://t.me/fradyrad)
+[![TG](https://github.com/nop-74/VDS_Windows-_Linux/blob/main/sale.png)](https://rdp-onedash.ru/r/8746989)
 
 
 ![Alt text](https://github.com/nop-74/VDS_Windows-_Linux/blob/main/t2.png)
 
-# [ЗАКАЗАТЬ](https://rdp-onedash.ru/r/8746989)
+[![TG](https://github.com/nop-74/VDS_Windows-_Linux/blob/main/sale.png)](https://rdp-onedash.ru/r/8746989)
 
 
 ![Alt text](https://github.com/nop-74/VDS_Windows-_Linux/blob/main/t3.png)
 
-# [ЗАКАЗАТЬ](https://rdp-onedash.ru/r/8746989)
+[![TG](https://github.com/nop-74/VDS_Windows-_Linux/blob/main/sale.png)](https://rdp-onedash.ru/r/8746989)
 
 
 ![Alt text](https://github.com/nop-74/VDS_Windows-_Linux/blob/main/t4.png)
-# [ЗАКАЗАТЬ](https://rdp-onedash.ru/r/8746989)
+
+[![TG](https://github.com/nop-74/VDS_Windows-_Linux/blob/main/sale.png)](https://rdp-onedash.ru/r/8746989)
 
 ![Alt text](https://github.com/nop-74/VDS_Windows-_Linux/blob/main/t5.png)
 
 
-# [ЗАКАЗАТЬ](https://rdp-onedash.ru/r/8746989)
+[![TG](https://github.com/nop-74/VDS_Windows-_Linux/blob/main/sale.png)](https://rdp-onedash.ru/r/8746989)
